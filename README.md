@@ -19,7 +19,7 @@ After that will compare with some other platforms (like Hotstar or Amazon Prime)
 
 *Vaishnavi Sinha*
 
-B.tech Student|Data Analysis and AI Enthusiast
+B.tech Student | Data Analysis and AI Enthusiast
 
 [LinkedIn](https://www.linkedin.com/in/vaishnavi-sinha-v2005/)
 
